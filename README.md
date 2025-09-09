@@ -13,3 +13,6 @@ My mother's name is Nagajothi.D,she is working in electronic's company.
 My brother's name is Abineshkumar.P,he is currently doing his schooling(8th std).
 
 I don't have any role model.
+
+Something abouy myself: My hobby is lisening music and my ambition is to be placed in a reputed company.
+And i need to lead a happy life,and i need to keep my surroundings happy and my family members. 
